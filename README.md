@@ -1,2 +1,2 @@
 # Andrew-Yembeh-Profile
-Abrief description about myself 
+A brief description about myself 
